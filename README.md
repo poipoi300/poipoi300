@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @poipoi300#9514 (Discord),
+- 👋 Hi, I’m poipoi300, you can add me on discord at www.google.ca (yes, I snagged that)
 - 👀 I’m interested in a lot of things including but not limited to: coding.
 - 📫 How to reach me: Discord.
 
